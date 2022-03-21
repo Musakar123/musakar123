@@ -1,4 +1,4 @@
-### Hi there 👋
+### universitas Sulawesi barat👋
 
 <!--
 **Musakar123/musakar123** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
